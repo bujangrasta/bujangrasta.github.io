@@ -1,2 +1,0 @@
-# bujangrasta.github.io
-bujangrasta
